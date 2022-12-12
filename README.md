@@ -1,1 +1,0 @@
-# hatomerpati.github.io
